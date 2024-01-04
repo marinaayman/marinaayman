@@ -6,7 +6,7 @@
 curious. determined. bird person (lemon-lime and squishy). working on becoming a voracious reader.
 
 #### Life advice...
-Focus on the feeling of "I rule" and leave out "I suck" part.
+Embrace continuous learning, balance work with life, and code not just for machines, but for people too.
 
 #### Experience...
 *currently under construction.*

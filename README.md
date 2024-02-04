@@ -1,6 +1,6 @@
 ### Hi there! 👋
 
-![Janice] (./janice.jpeg)
+![Janice](./janice.jpeg)
 
 #### I am...
 curious. determined. bird person (lemon-lime (RIP), squishy, angel, shylo, cinnamon, boogy, and pumbaa). working on becoming a voracious reader.

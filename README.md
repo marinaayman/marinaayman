@@ -7,4 +7,3 @@ meticulous in approach.
 working on becoming a voracious reader.
 
 #### Experience...
-*currently under construction.*
